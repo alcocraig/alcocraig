@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @alcocraig
 - 👀 I’m interested in coding, snow boarding and beer making
-- 🌱 I’m currently learning to tolerate my wife
+- 🌱 I’m currently learning to tolerate my ex-wife
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me alcocraig@gmail.com
 
